@@ -1,3 +1,3 @@
 # n
 
-For
+For a great story!
