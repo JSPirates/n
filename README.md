@@ -1,3 +1,3 @@
 # n
 
-For a great story!
+For a great adventure!
